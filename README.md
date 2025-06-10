@@ -6,10 +6,9 @@
 
 Contact me on here:
 
-Gmail : [firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
 
-Instagram : @ysrlgg
-
-Discord : https://discord.gg/Kz9qQmVm
+[![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:firstianyusrilkisnandaa@gmail.com)
+[![Instagram](https://img.shields.io/badge/Instagram-%23E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://instagram.com/ysrlgg)
+[![Discord](https://img.shields.io/badge/Discord-%237289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/Kz9qQmVm)
 
 
