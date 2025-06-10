@@ -2,7 +2,7 @@
 
 💻 Cyber Security Enthusiast | eksplorasi **Network Security**
 
-📡 Let’s Connect:
+📡 Let’s Connect to everyone
 
 Contact me on here:
 
