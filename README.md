@@ -4,4 +4,4 @@
 
 📡 Let’s Connect:
 
-📫:[firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
+📨:[firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
