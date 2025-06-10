@@ -4,4 +4,7 @@
 
 📡 Let’s Connect:
 
-📨:[firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
+Contact me on here:
+
+Gmail : [firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
+Instagram : ysrlgg
