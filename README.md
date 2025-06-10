@@ -8,7 +8,7 @@ Contact me on here:
 
 Gmail : [firstianyusrilkisnandaa@gmail.com](mailto:firstianyusrilkisnandaa@gmail.com)
 
-Instagram : ysrlgg
+Instagram : @ysrlgg
 
 Discord : https://discord.gg/Kz9qQmVm
 
