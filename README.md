@@ -1,6 +1,6 @@
 ## Hi there! I’m Frizzz ⚡
 
-💻 **Cyber Security Enthusiast** | Eksplorasi di bidang **Network Security**  
+💻 **Cyber Security Enthusiast** | Explore **Network Security**  
 📱 **Mobile App & Front-End Enthusiast**
 
 📡 **Let’s connect!**  
